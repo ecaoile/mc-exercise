@@ -20,3 +20,7 @@ Did you hear about the two peanunts walking down the street?
 No, what happened?
 
 They were assulted
+
+This is ted and Alice on Ted's computer
+What is brown and sticky?
+A stick
