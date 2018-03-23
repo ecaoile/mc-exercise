@@ -21,6 +21,9 @@ No, what happened?
 
 They were assulted
 
+This is ted and Alice on Ted's computer
+What is brown and sticky?
+A stick
 This is what Bob and Carol did on Carol's computer (round 2)
 What did the digital clock say to the grandfather clock?
 Look, pa! No hands!
