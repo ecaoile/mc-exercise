@@ -19,3 +19,10 @@ Earl Jay - Bob
 Sam - Alice 
 Darryl - Carol
 Justin - Ted
+
+Scenario 4: Carol forgot to pull from master before she started editing her own files. 
+
+Darryl: Alice
+Sam: Ted
+Justin: Carol
+Earl Jay: bob
