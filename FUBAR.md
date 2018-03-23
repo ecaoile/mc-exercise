@@ -55,3 +55,7 @@ This is a joke from Ted and Alice (Justin and Same):
 Q: Why did the birdie go to the hospital? A: To get a tweetment.
 
 ROFL
+
+This is what Bob and Carol did on Bob's computer (round 4).
+What's a shoe's favorite food?
+Tie food! HAHAHAHAHA ROFL
