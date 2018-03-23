@@ -56,6 +56,17 @@ Q: Why did the birdie go to the hospital? A: To get a tweetment.
 
 ROFL
 
+/////////////////////////////////
+
+KNOCK KNOCK
+
+who's there? 
+
+I HEARD. 
+
+I heard who. 
+
+I HEARD YOU WERE HOME. 
 This is what Bob and Carol did on Bob's computer (round 4).
 What's a shoe's favorite food?
 Tie food! HAHAHAHAHA ROFL
