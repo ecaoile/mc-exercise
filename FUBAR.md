@@ -21,6 +21,7 @@ No, what happened?
 
 They were assulted
 
+
 Here is a joke from Bob #2. 
 
 What does a sandwich cook!?
@@ -34,3 +35,8 @@ A stick
 This is what Bob and Carol did on Carol's computer (round 2)
 What did the digital clock say to the grandfather clock?
 Look, pa! No hands!
+
+This is what Bob and Carol did on Carol's computer (round 2)
+What did the digital clock say to the grandfather clock?
+Look, pa! No hands!
+
