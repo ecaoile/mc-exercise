@@ -67,3 +67,15 @@ I HEARD.
 I heard who. 
 
 I HEARD YOU WERE HOME. 
+This is what Bob and Carol did on Bob's computer (round 4).
+What's a shoe's favorite food?
+Tie food! HAHAHAHAHA ROFL
+
+//////////////////////////////////////////
+Ted's Computer - Round 4
+
+What do you call an Badger with a carrot in each ear? 
+Anything you want as he can't hear you! 
+
+///////////////////////////////////
+
