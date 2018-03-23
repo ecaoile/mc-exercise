@@ -45,7 +45,6 @@ EGGS-TENSIONS! BAHAHAHA!
 This is bob on Carols laptop
 How do you get holy water?
 You boil the hell out of it.
-<<<<<<< HEAD
 
 =) =)
 
@@ -56,5 +55,3 @@ This is a joke from Ted and Alice (Justin and Same):
 Q: Why did the birdie go to the hospital? A: To get a tweetment.
 
 ROFL
-=======
->>>>>>> master
