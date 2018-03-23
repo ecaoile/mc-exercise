@@ -55,3 +55,13 @@ This is a joke from Ted and Alice (Justin and Same):
 Q: Why did the birdie go to the hospital? A: To get a tweetment.
 
 ROFL
+
+
+//////////////////////////////////////////
+Ted's Computer - Round 4
+
+What do you call an Badger with a carrot in each ear? 
+Anything you want as he can't hear you! 
+
+//////////////////////////////////////////
+
