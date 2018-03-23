@@ -20,3 +20,11 @@ Did you hear about the two peanunts walking down the street?
 No, what happened?
 
 They were assulted
+
+Here is a joke from Bob #2. 
+
+What does a sandwich cook!?
+
+When it's Bacon, Lettuce, and tomato? 
+
+HAHAHA!!! ROFL
