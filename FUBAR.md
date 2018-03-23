@@ -55,3 +55,15 @@ This is a joke from Ted and Alice (Justin and Same):
 Q: Why did the birdie go to the hospital? A: To get a tweetment.
 
 ROFL
+
+/////////////////////////////////
+
+KNOCK KNOCK
+
+who's there? 
+
+I HEARD. 
+
+I heard who. 
+
+I HEARD YOU WERE HOME. 
