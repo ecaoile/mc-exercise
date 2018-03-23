@@ -40,6 +40,8 @@ This is what Bob and Carol did on Carol's computer (round 2)
 What did the digital clock say to the grandfather clock?
 Look, pa! No hands!
 
+What kind of hair do they sell at IHOP?
+EGGS-TENSIONS! BAHAHAHA!
 This is bob on Carols laptop
 How do you get holy water?
 You boil the hell out of it.
